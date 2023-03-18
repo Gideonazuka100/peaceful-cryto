@@ -1,2 +1,2 @@
-# peaceful-cryto
-Peace-cryto is a place broke where you buy and sale cryptocurrency, Bitcoin and all gift cade etc
+# peaceful empire
+Peaceful empire is a place where you can get quality and affordable event management such as: <pre> video coverage. interior and exterior decorations. for birthday party. surprise package. engagement party. valentine. Wedding. anniversary's etc.</pre>  We also deal on cakes for all events,  Local and continental dish, Pastery such as: <pre> wedding cakes. birthday cakes. anniversary cakes. graduation cakes. valentine cakes. Food tray and lots more.</pre> Contact peaceful empire today for your satisfaction..."Your Satisfaction is our priority"  
